@@ -1,4 +1,1 @@
-Hola 👋
-Emoji enthusiast 💞
-Loves puns 😃
-Hi-Chew lover 🍬
+I love matcha, computer science, and fall outfits!
