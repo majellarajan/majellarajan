@@ -1,4 +1,4 @@
-Hiii 👋
+Hola 👋
 Emoji enthusiast 💞
-Loves matcha 😃
-Book lover 🍬
+Loves puns 😃
+Hi-Chew lover 🍬
