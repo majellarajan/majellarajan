@@ -1,1 +1,4 @@
-I love matcha, computer science, and fall outfits!
+Heyooo 👋
+Emoji enthusiast 💞
+Loves puns 😃
+Hi-Chew lover 🍬
